@@ -1,2 +1,0 @@
-# Sardor-Hasanov
-sardor-website
